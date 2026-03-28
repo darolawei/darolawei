@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @darolawei
 - 👀 I’m interested in Machne Learning
-- 🌱 I’m currently learning ICT
+- 🌱 I’m currently Studying
 - 💞️ I’m looking to collaborate on Technology
 - 📫 How to reach me emial, twitter
 
